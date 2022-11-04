@@ -1,2 +1,2 @@
 # URL WEB
-🔗<a href="https://jcano37.github.io/trance_family/">Cool Gaming Pro</a>
+🔗 <a href="https://jcano37.github.io/cool_gaming_pro/">Cool Gaming Pro</a>
